@@ -1,1 +1,2 @@
-Im regword, just regword...
+I've CS:GO Server 
+
